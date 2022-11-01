@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nicol
+- 👋 Hi, I’m @Luz Nicool
 - welcome to my little page
 - Things about me:
 - I am a creative girl, I'm in my twenties.
